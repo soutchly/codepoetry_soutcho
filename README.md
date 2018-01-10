@@ -13,5 +13,3 @@ The ceremony of innocence is drowned;
 I forgot to add another line
 
 The blood-dimmed tide is loosed, and everywhere
-
-The ceremony of innocence is drowned;
